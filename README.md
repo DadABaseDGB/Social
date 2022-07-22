@@ -1,5 +1,7 @@
 ## Contact 📘
 
 - Email: [johnnylaw2021@protonmail.com](mailto:johnnylaw2021@protonmail.com)
+- Telegram: [@johnnylawdgb](https://t.me/johnnylawdgb)
+- Twitter: [@johnnylaw2021](https://twitter.com/johnnylaw2021)
 
-90F38pTkjxksbdayctNCOp6bpaC73aTaYA0kP8EBges
+wkEDPAIdH3UW_0RHCU093PlVf5Z4JGMij5fjojpnnb4
